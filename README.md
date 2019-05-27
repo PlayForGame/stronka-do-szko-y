@@ -1,0 +1,1 @@
+# stronka-do-szko-y
